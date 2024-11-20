@@ -32,7 +32,4 @@ When everyone returned to camp we huddled up around the campfire and talked abou
 
 Happily showing the efforts of the hunt, the party cooked and ate like royals. Well, royals in the woods. With ome proper Chicken of the Woods steaks and some lovely grilled hare in there bellies time came to set up a watch schedule and go to sleep.
 
-While I was deep in dreamland, I got woken up by Casimar and Echo who heared low growling noises near the camp. The noises seemed to come from a hollowed out treestump, not accessable to us by any means.
-
-> *TBC*
-
+While I was deep in dreamland, I got woken up by Casimar and Echo who heared low growling noises near the camp. The noises seemed to come from a hollowed out treestump, not accessable to us by any means. Deciding that we could not do anything with (or about) it, and went back to sleep for an extra hour.
