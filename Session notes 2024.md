@@ -26,10 +26,10 @@ The woman walks up to Echo and they have a little chat; she introduces herself a
 
 After coming back to the camp, the party decided to go foraging for firewood and food. Casimar built a small campfire; Echo went to get firewood and found a big tasty looking mushroom; Gervian went out looking for a game trail and set up a snare.
 
-When everyone returned to camp we huddled up around the campfire and talked about what happened and our next course of action. We also inspected the mushroom Echo found, which after identifying it was Chicken of the Woods, a very jummy mushroom.
+When everyone returned to camp we huddled up around the campfire and talked about what happened and our next course of action. We also inspected the mushroom Echo found, which after identifying it was Chicken of the Woods, a very yummy mushroom.
 
-2 Hours past and Casimar and Gervian decided to check up on the share. After a few minutes of walking they tracked the snare and found a hare caught in the trap. The ground floor had some russeled up leaves and dirt, it tried to escape of course. Gervian undid the snare from the hare, imidiatly cutting its throat to bleed it out and check if there was any blood at all. After undoing the snare and stowing the rope they return to there camp.
+2 Hours past and Casimar and Gervian decided to check up on the share. After a few minutes of walking they tracked the snare and found a hare caught in the trap. The ground floor had some rustled up leaves and dirt, it tried to escape of course. Gervian undid the snare from the hare, immediately cutting its throat to bleed it out and check if there was any blood at all. After undoing the snare and stowing the rope they return to there camp.
 
-Happily showing the efforts of the hunt, the party cooked and ate like royals. Well, royals in the woods. With ome proper Chicken of the Woods steaks and some lovely grilled hare in there bellies time came to set up a watch schedule and go to sleep.
+Happily showing the efforts of the hunt, the party cooked and ate like royals. Well, royals in the woods. With some proper Chicken of the Woods steaks and some lovely grilled hare in there bellies time came to set up a watch schedule and go to sleep.
 
-While I was deep in dreamland, I got woken up by Casimar and Echo who heared low growling noises near the camp. The noises seemed to come from a hollowed out treestump, not accessable to us by any means. Deciding that we could not do anything with (or about) it, and went back to sleep for an extra hour.
+While I was deep in dreamland, I got woken up by Casimar and Echo who heard low growling noises near the camp. The noises seemed to come from a hollowed out tree stump, not accessible to us by any means. Deciding that we could not do anything with (or about) it, and went back to sleep for an extra hour.
