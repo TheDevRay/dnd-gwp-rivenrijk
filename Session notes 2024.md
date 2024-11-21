@@ -10,7 +10,7 @@
 
 *3 Vine like creatures appear from the wall whilst Casimar's magical fire is burning away a part of said wall.*
 
-When the creatures come out of the wall they make attacked Casimar and Gervian with hundreds of the thorns. Immediately turning Casimar into an inside-out like looking porcupine, causing him to become the first casualty. Gervian also takes some damage whilst trying to chop away at this Blights. In the meantime, Echo is making epic shots from behind a tree, making the adversaries a pile of matchsticks one by one, alas not in time fore Gervian goes down.
+When the creatures came out of the wall they attacked Casimar and Gervian with hundreds of the thorns flying through the air. Immediately turning Casimar into an inside-out like looking porcupine, causing him to become the first casualty. Gervian also takes some damage whilst trying to chop away at this Blights. In the meantime, Echo is making epic shots from behind a tree, making the adversaries a pile of matchsticks one by one, alas not in time fore Gervian goes down.
 
 Leaving Echo to be the soul survivor of this adventure, out of the burnt away hedge, a female - green, bark-like skin - steps out of her hiding, advancing towards Gervian.
 
