@@ -17,7 +17,7 @@ Instead of walking back to the road and following that, we decided to just hike 
 
 In awe of this siting we decided to light a lantern and travel down the stairs.
 
-We transferred a long way down, ending up in a darkened hallway, about 20 foot long, with some stairs leading down at the end. This stonework felt like home to me, was it not for it was way broader and higher than I was used too.
+We transferred a long way down, ending up in a darkened hallway, about 20 foot long, with some stairs leading down at the end. This stonework felt like home to me, although it they are not neatly and fancily carved out as I am used, it still feels very familiar.
 On both sides of the hallway were arrow slits, next too them a door. As I looked to the slits, I found out there were rooms. The rooms seemed to be abandoned and deserted for some time already and one of them also had a weapon rack, with some simple spears.
 The doors were big, sturdy and reinforced. Wanting to inspect the room with the weapons, I tried to open the door, but alas, it was impossible to open and seemed to be barred from the inside.
 
