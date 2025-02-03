@@ -30,11 +30,11 @@ After being halted by some men on the road to Sweel, we continue this exciting a
 
 > TODO - continue
 
-## Rat-folk, a guardhouse, a curious note and a portcullis
+## Rat-folk, a guardhouse, bloody rain, a curious note and a portcullis
 
 | Date | Party | Places | NPCs |
 |-|-|-|-|
-| 20 - January | Casimar, Echo, Gervian, Leon | ? | Aviana, Skrix |
+| 20 - January | Casimar, Echo, Gervian, Leon | Tura, ? | Aviana, Skrix |
 
 After hearing Leon yell we are under attack Gervian storms out to assess the situation. Taking cover behind a pile of rubble that is laying in the streets. Seeing 5 bogeys, rat-like people carrying some simple slings. A sling does not sound like a lot, but I can now tell you that a pebble being flung to the face hurts more than you think.
 
