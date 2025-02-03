@@ -87,3 +87,11 @@ When everyone returned to camp we huddled up around the campfire and talked abou
 Happily showing the efforts of the hunt, the party cooked and ate like royals. Well, royals in the woods. With some proper Chicken of the Woods steaks and some lovely grilled hare in there bellies time came to set up a watch schedule and go to sleep.
 
 While I was deep in dreamland, I got woken up by Casimar and Echo who heard low growling noises near the camp. The noises seemed to come from a hollowed out tree stump, not accessible to us by any means. Deciding that we could not do anything with (or about) it, and went back to sleep for an extra hour.
+
+## The Green Wall
+
+| Date | Party
+|-|-
+| 4 - November | Gervian, Casimar, Echo
+
+*Party left "De Verlichte Uil" and is en route to the common location of the requested stone*
