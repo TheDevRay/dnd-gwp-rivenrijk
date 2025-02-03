@@ -58,7 +58,7 @@ But alas, no valuables or notion of whom they are, where we are or what so ever.
 
 As Echo and Leon went on a scouting trip to see for better options to rest than in the building we just checked out, Casimar and Gervian got cozy inside that very same building. As having a beer and a cozy fire wasn't enough, also decided on setting a trap up the back ally to provide a little protection, or perhaps, dinner, this cabbage is not gonna last me very long anyway.
 
-After about 2 hours, the scouting party came back telling us about an old guardhouse they found, near a bell tower. It did sound a lot better than this shit hole, although we made a fire, it was promised to have a lockable door and barred windows. So we decided rest there for the rest of the day and night. Nobody really even no what time of day it was, but the portal seemed to shook up things a little.
+After about 2 hours, the scouting party came back telling us about an old guardhouse they found, near a bell tower. It did sound a lot better than this shit hole, although we made a fire, it was promised to have a lockable door and barred windows. So we decided rest there for the rest of the day and night. Nobody really even know what time of day it was, but the portal seemed to shook up things a little.
 
 When we got there, we locked the door and took some time to ourself, patching our wounds a little and talking about what all just happened. Echo could not resist questioning our "new" green faced friend whom is still amongst us somehow.
 
