@@ -22,9 +22,9 @@ The guys did a flashback where Casimar nearly died and Leon waited behind a door
 
 #### aka We're not gonna pay taxes
 
-| Date | Party |
-|-|-|
-| 20 - January | Casimar, Echo, Gervian, Leon |
+| Date | Party | Places | NPCs |
+|-|-|-|-|
+| 20 - January | Casimar, Echo, Gervian, Leon | Sweel, ? | Aviana, Jerker, Frédéric, Patter |
 
 After being halted by some men on the road to Sweel, we continue this exciting adventure, by talking to those people. As soon as we figured out they were the men of the Silver's Put Revenue Administration, we tried to talk our way into the village to complete the current assignment.
 
