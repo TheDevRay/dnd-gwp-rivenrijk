@@ -56,3 +56,30 @@ But alas, no valuables or notion of whom they are, where we are or what so ever.
 
 > What is this glass-like dust?
 
+As Echo and Leon went on a scouting trip to see for better options to rest than in the building we just checked out, Casimar and Gervian got cozy inside that very same building. As having a beer and a cozy fire wasn't enough, also decided on setting a trap up the back ally to provide a little protection, or perhaps, dinner, this cabbage is not gonna last me very long anyway.
+
+After about 2 hours, the scouting party came back telling us about an old guardhouse they found, near a bell tower. It did sound a lot better than this shit hole, although we made a fire, it was promised to have a lockable door and barred windows. So we decided rest there for the rest of the day and night. Nobody really even no what time of day it was, but the portal seemed to shook up things a little.
+
+When we got there, we locked the door and took some time to ourself, patching our wounds a little and talking about what all just happened. Echo could not resist questioning our "new" green faced friend whom is still amongst us somehow.
+
+Aviana told us that she has been in Rivenrijk for about 200 to 300 years, how she got there is a little vague, but apparently *PooF*. She had enough time to figure out how to get back, and us to find all the artifacts she needed to do so. She also tells us that used to live about hour away from this place, on the edge of the forest, this town we are in is probably called **Tura**, she recons.
+
+At some point we all dose off for our nights' rest and luckily survived it. Waking up, not feeling rested at all, experiencing a heavy feeling, severe headaches, we have our breakfast meeting with a rainy background. Concluded Aviana is gonna try and show us the way to her old house. We also discussed the mode of transportation, perhaps with the help of Aviana, but alas, she cannot shift into a draft horse to pull the wagon we say at our old location. *sigh.* Walking it is then!
+
+We opened to the door, seeing a blackened, thunder roaring sky. Rain is pouring down. Feeling heavy, we walk out, rain touching our skins, but it did not feel like rain, it felt thicker and more sticky; looking at it, it is goddamn blood. Paying a little closer attention to our surroundings we see sort of the same streets, yet different. Thick vines with thorns now wrapped around buildings and other objects making to hard to navigate, but we still seem to head in the right direction according to Aviana.
+
+Along our travels we found a curious note saying:
+
+```
+Voor eenieder die dit leest.
+
+Het is nu pak 'm beet 6 maanden sinds de de lucht boven onze prachtige stad werden verlicht met de meest profetische vertoningen van kleuren. En dezelfde aantal dagen sinds die prachtige kleuren onze stad vernietigden. En nu, 6 maanden na deze profetische catastrofe, wie nu, beschermd ons tegen deze chaos die de stad van dag tot dag doet veranderen? Dit vraag ik aan u! Maar eerst zal ik mijn eigen visie delen…
+
+Het is mijn meest vereerde mening dat terwijl Ilmater altijd onze beschermheer zal blijven, zijn welwillendheid nooit meer zal schijnen op de verdorven en ellendige inwoners die deze stad populeren. En zo is het dat in het neerstrijken van onze stad de wijze Ilmater ons de weg heeft laten zien. Hij heeft het teken gegeven om deze plek te verlaten, om verder te kijken, om buiten deze verdoemde stad te stappen en door de poort de wijdere wereld te betreden.
+
+En voor de wijzen die gaan, die gaan niet alleen. Deze publicatie is gewijd aan het verspreiden van nieuws aan al Ilmater zijn kinderen. Het is ons duidelijk dat onze missie daar ligt, door de poort naar buiten. En zo, oh lezer, waar eerst wij vanuit vuile kantoren werkten werken wij nu vanaf een simpele wagen met daarop een drukpers gebonden en alles wat wij nodig zullen hebben aan de andere kant van de poort.
+
+Kom met ons mee nu, en loop met ons deze prachtige en glorieuze nieuwe ochtend tegemoet!
+```
+
+After taking this note and walking some more, we arrived at a high fortified wall with a portcullis, which of course is closed. As we approach the portcullis, we see 2 guards standing watch. Being guards they obviously do not clock us directly, also looking in the opposite direction, so we have to ask if they can open the gates so we can get out of this bloody rain. Happily the guards comply and let us pass through. Distorted by being in this horror scenery we seem to have entered "the normal world" somehow. Asking the guards where we are isn't yet very helpful, but again they are guards, their answer was "**Lockhead Gate**".
