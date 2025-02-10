@@ -83,3 +83,12 @@ Kom met ons mee nu, en loop met ons deze prachtige en glorieuze nieuwe ochtend t
 ```
 
 After taking this note and walking some more, we arrived at a high fortified wall with a portcullis, which of course is closed. As we approach the portcullis, we see 2 guards standing watch. Being guards they obviously do not clock us directly, also looking in the opposite direction, so we have to ask if they can open the gates so we can get out of this bloody rain. Happily the guards comply and let us pass through. Distorted by being in this horror scenery we seem to have entered "the normal world" somehow. Asking the guards where we are isn't yet very helpful, but again they are guards, their answer was "**Lockhead Gate**".
+
+## You only had one job...Casimar owes me 5 gp
+
+| Date | Party | Places | NPCs |
+|-|-|-|-|
+| 27 - January | Casimar, Gervian | Thyra | Aviana, guard 1 & 2, quartermaster, buff bounty hunter chick, barmaid, expensive prostitute |
+
+Gervian is über grumpy. Casimar paid 99 gp for a Skrix's head, took on own bounty.
+We also accepted a job as donut squad to gain some money and get to know the place a little better.
